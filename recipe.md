@@ -17,3 +17,7 @@
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
 5. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 6. Pour the batter into a greased and floured 9x13-inch baking pan.
+
+## Additional Directions by Jess:
+7. Bake in the oven for 30 minutes.
+8. Serve it with milk and vanilla ice cream.
